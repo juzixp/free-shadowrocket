@@ -1,4 +1,4 @@
-# 最新美国Apple ID免费分享，Shadowrocket共享账号分享，香港apple id共享，v2ray, trojan, ssr免费节点
+# 最新美国Apple ID免费分享，Shadowrocket小火箭账号分享，香港apple id共享，v2ray, trojan, ssr免费节点
 
 分享最新可用的美区Apple ID，方便用户获取特定iOS应用，例如Shadowrocket（小火箭）等。您的支持是我们持续更新的动力！
 如对您有所帮助，请点个小星星⭐，后面会持续更新。
