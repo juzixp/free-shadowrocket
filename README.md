@@ -30,7 +30,7 @@
 -  **账户邮箱：** `yysim390@163.com` (此账户已购买Shadowrocket小火箭)
 
 - 获取密码：
-  1. **[推荐独享小火箭账号，apple id](https://juzixp.com/buy/15)**
+  1. **[推荐独享小火箭账号，apple id](https://shop.muooy.com/buy/15)**
   2. 请加入我们的 **[Telegram群组](https://t.me/juzixpchat)** 获取最新密码。
 
 
@@ -44,4 +44,4 @@
 ## **独享账户与优质节点服务推荐**
 
 🚀 **推荐独享小火箭账户与美区Apple ID：**
-如果您需要更稳定、私密的美区Apple ID或已购买特定应用的账户，建议访问 **[juzixp.top](https://juzixp.com/)** 了解独享账户详情。
+如果您需要更稳定、私密的美区Apple ID或已购买特定应用的账户，建议访问 **[juzixp.top](https://shop.muooy.com/)** 了解独享账户详情。
